@@ -107,7 +107,3 @@
 ![image](https://github.com/user-attachments/assets/e897c221-37ab-4e97-8d5b-e1c909118846)
 ![image](https://github.com/user-attachments/assets/e6df5fcf-aa87-4cf7-8114-fd168d76d83d)
 ![image](https://github.com/user-attachments/assets/099ce223-ebdc-4c8b-a618-748b70972744)
-
-
-![image](https://github.com/user-attachments/assets/2da40e38-f5f5-4a1b-b8ab-223a22318d8f)
-
